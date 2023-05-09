@@ -1,6 +1,6 @@
 - 👋 Hi, I’m **Keshav Kumar Baranwal**
-- 👀 I’m interested in 
-- 🌱 I’m currently learning new programing languages
+- 👀 I’m interested in learning an transforming the tech world.
+- 🌱 I’m currently learning new programing languages.
 - 📫 How to reach me:keshavk2008@gmail.com
 -
 
